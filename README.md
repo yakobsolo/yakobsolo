@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **yakissolomon@gmail.com**
 
-- 📄 Know about my experiences => https://shorturl.at/8xs64
+- 📄 Know about my experiences => [Link to My Resume](https://shorturl.at/8xs64)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
